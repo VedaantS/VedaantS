@@ -8,4 +8,4 @@ Technology can connect the world or divide it. It can clean up the world or make
 
 It can save the world, or it can destroy it. 
 
-I want to use my knowledge of tech to make the world a better place. 
+I try my best to use my knowledge of tech to make the world a better place. 
