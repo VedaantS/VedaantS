@@ -1,6 +1,6 @@
 ### Hi there, I'm Vedaant 👋
 
-Born in Delhi. I now live in New York, USA. 
+Born in Delhi, now in New york. 
 
 I'm a 16-year-old developer and student. 
 
